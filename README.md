@@ -6,4 +6,4 @@ The content was published at: https://stmoonar803366.github.io/
 
 The page is simple and as articles become more and more, I will considerate making them more organized.
 
-Enjoy yourself there:simel:!
+Enjoy yourself there:simle:!
